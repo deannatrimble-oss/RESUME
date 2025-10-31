@@ -75,7 +75,7 @@ My work bridges **education and IT**, blending hands-on learning leadership with
 
 🎓 **Associate of Science Degree**  
 *Richland College – Dallas, TX*  
-📅 *Expected Spring 2026*
+📅 *Expected Fall 2026*
 
 💻 **IT Support Professional Certificate**  
 *Completed November 2024*
